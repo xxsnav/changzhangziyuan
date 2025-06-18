@@ -1,8 +1,7 @@
 <h2>厂长资源官网，厂长影视超清视频网站|网页版入口|下载</h2>
 <p>厂长资源是一个综合性的影视资源平台，致力于为用户提供海量高清影视内容。其特色在于覆盖广泛的影视种类，包括电影、电视剧、综艺、动漫等，同时提供多种语言版本的影视资源，如国语、英文字幕等。平台支持在线播放和下载功能，用户可以根据自己的需求选择合适的观看方式。此外，厂长资源还提供个性化推荐功能，根据用户的观影习惯推荐感兴趣的内容，提升用户体验。</p>
-<p><strong>一键访问：</strong><a href="https://www.xxsnav.com/sites/17629.html" target="_blank"><strong>厂长资源官网最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://pan.quark.cn/s/97703bfac418" target="_blank"><strong>⏬电子书/zlib资源包</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://pan.quark.cn/s/0db22432c259" target="_blank"><strong>⏬经典电影/无损音乐</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://changzhangziyuan.wwwnav.com/" target="_blank"><strong>厂长资源官网最新网址</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank"><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <p><strong>功能特点</strong></p>
 <ol>
